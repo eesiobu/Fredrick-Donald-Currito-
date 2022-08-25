@@ -12,3 +12,4 @@ Address: New York, America.
 Child(ren): Rodrigo Fredrick
 Spouse: late Maria Fredrick 
 Parents: Diego Fredrick and fustian Elizabeth Fredrick.# Fredrick-Donald-Currito-
+# Fredrick-Donald-Currito-
