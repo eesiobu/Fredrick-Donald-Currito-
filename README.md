@@ -1,5 +1,5 @@
  
- ![Fredrick-Donald-Currito](https://drive.google.com/file/d/1JrnNBjpLtdJvirH0FgqkT893aMUWjejB/view?usp=drivesdk)
+ ![Fredrick-Donald-Currito](img/IMG-20220819-WA0012.jpg)
 
 Fredrick Donald Currito is a Medical Doctor currently serving in Yemen and lives in New York, United States.
 
